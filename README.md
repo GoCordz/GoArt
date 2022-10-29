@@ -11,4 +11,4 @@ Official Non Commercial Artwork In Use For GoCordz Github Profile
 ![unknown2](https://user-images.githubusercontent.com/116932476/198798706-1a10c908-de7c-4aaa-8a0b-d1fabd634d3a.png)
 
 ### Having Questions? 
-Contact us at: gocord@gmail.cpm
+Contact us at: gocord@gmail.com
